@@ -1,4 +1,4 @@
-### deanflannagan
+### **Discord**: [deanflannagan](https://discord.com/users/deanflannagan)
 
 <!--
 **deanflannagan47/deanflannagan47** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
